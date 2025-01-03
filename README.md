@@ -1,4 +1,5 @@
 # about me
+i am actually from aus <br/>
 tablet + keyboard <br/>
 i enjoy warriors basketball sometimes <br/>
 i dont have many friends <br/>
